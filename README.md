@@ -1,0 +1,1 @@
+# S-ni-ntellekt-K-m-k-i-yoxsa-R-qib
